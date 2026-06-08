@@ -8,6 +8,6 @@
 - EpamCampus 2024 Pre-Junior Program – Certificate
 - [View PDF](EpamCampus2024.pdf)
 
-- - EpamCampus 2025 Pre-Junior Program – Certificate
+- EpamCampus 2025 Pre-Junior Program – Certificate
 - [View PDF](EpamCampus2025.pdf)
 
