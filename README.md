@@ -6,8 +6,8 @@
   [Verification Link](https://verify.skilljar.com/c/2mh62u8rocvn)
 
 - EpamCampus 2024 Pre-Junior Program – Certificate
-- [View PDF](EpamCampus2024.pdf)
+  [View PDF](EpamCampus2024.pdf)
 
 - EpamCampus 2025 Pre-Junior Program – Certificate
-- [View PDF](EpamCampus2025.pdf)
+  [View PDF](EpamCampus2025.pdf)
 
